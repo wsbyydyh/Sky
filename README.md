@@ -1,5 +1,2 @@
 # Sky
-STUDENT
-hzj
-www.baidu.com
-jwxk.zufe.edu.cn
+140104400122徐鑫
